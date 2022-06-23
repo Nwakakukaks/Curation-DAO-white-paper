@@ -8,7 +8,7 @@ Click on raw then Download to access file locally
 
 Link to slides and video presentation 
 
-
+https://youtu.be/N69OrFlwX0E
 
 Link to google doc 
 
