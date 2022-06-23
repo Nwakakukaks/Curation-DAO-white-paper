@@ -1,4 +1,4 @@
-# Curation-DAO-whitepaper
+# Curation-DAO-white paper 
 
 Link to pdf file 
 
